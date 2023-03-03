@@ -11,9 +11,11 @@ o nose no esta planeado
 Esta cosa es para: Emy, Luske, Carøl, Brisa, Cortezgo,
 YoSoyLoki, Adriano, Valeria, Valee, Gonza, y 100 más!
 
-Xfa que reciba apoyo la wea xq me costo mucho.
+Xfa que reciba apoyo la cosa xq me costo mucho.
 
 Gracias a todos, en especial....A Harry!
 
 @SoyHarry tu engine (osea Harry's engine) la pongo
 al mod en la 1.0.5!!
+
+Chauuu!
